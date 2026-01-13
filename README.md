@@ -1,1 +1,1 @@
-# JohnOmekaInsights.github.io
+EngagingLifeInsights.github.io
